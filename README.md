@@ -1,0 +1,1 @@
+#Privacy Policy and Terms & Conditions of the William's notes app.
